@@ -1,16 +1,19 @@
-## Hi there 👋
+ⲏⲓ.
 
-<!--
-**lexxsmi/lexxsmi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img src="https://github.com/lexxsmi/lexxsmi/blob/main/tumblr_b8ccb1b362bd95bd9c7cacb5db5b0f27_883c0897_540.gif"  height="300" center>
 
-Here are some ideas to get you started:
+ⲛⲁⲙⲉ ⳑⲉⲭⲭⲋⲙⲓ. ⲏⲉ\ⲏⲓⲙ ⲟⲛⳑⲩ. ⲙⲓⲋⳋⲉⲛⲇⲉʀⲓⲛⳋ = ⲃⳑⲟⲥⲕ
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img src="https://github.com/lexxsmi/lexxsmi/blob/main/tumblr_46587933ebc7b5007f7b2c08857049aa_c9803365_540.gif"  height="300" center>
+
+ϝⲁⲛⲇⲟⲙ : ⲋqυⲓⲇ ⳋⲁⲙⲉ, ϝⲓⳋⲏⲧⲥⳑυⲃ, ⳑⲓϝⲉ ⲓⲋ ⲋⲧʀⲁⲛⳋⲉ 2. 
+
+ⲆⲚⲒ: ⲉⳳⲉʀⲩⲃⲟⲇⲩ......
+
+ⲙⲓⲋⲣʀⲟⲛⲁυⲋⲓⲛⳋ, ⲧⲟⲟ ⲧⲉⲛⲇⲉʀ, ⲁⳋⲁⲓⲛⲋⲧ ⲃⳑⲁⲥⲕ ⲏυⲙⲟʀ, ⲱⲏⲓⲛⲉʀⲋ, ϝⲁⲛⲋ 355 ⲁⲛⲇ ⲛⲁⲙⳋⲩυ\ⲙⲩυⲛⳋⲉⲉ, ⲋⲁⲛⳋ ⲱⲟ ⲏⲁⲧⲉʀⲋ
+
+
+  
+  ⲟⲕ ⲃⲩⲉ.
+
+<img src="https://github.com/lexxsmi/lexxsmi/blob/main/taking-a-bite-cho-sang-woo.gif"  height="300" center>
