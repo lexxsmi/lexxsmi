@@ -1,4 +1,4 @@
-ⲏⲓ.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   ㅤㅤ     ⲏⲓ.
 
 <img src="https://github.com/lexxsmi/lexxsmi/blob/main/tumblr_b8ccb1b362bd95bd9c7cacb5db5b0f27_883c0897_540.gif"  height="300" center>
 
@@ -14,6 +14,6 @@
 
 
   
-  ⲟⲕ ⲃⲩⲉ.
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   ㅤㅤ                    ⲟⲕ ⲃⲩⲉ.
 
-<img src="https://github.com/lexxsmi/lexxsmi/blob/main/taking-a-bite-cho-sang-woo.gif"  height="300" center>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   ㅤㅤ     <img src="https://github.com/lexxsmi/lexxsmi/blob/main/taking-a-bite-cho-sang-woo.gif"  height="300" center>
